@@ -8,4 +8,4 @@
 
 4) Please a STAR for this repo, if u liked.
 
-5) No comments are welcomed.
+5) Comments are welcomed.
